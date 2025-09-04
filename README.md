@@ -1,0 +1,1 @@
+Hello Everyone, I am Tejas Wajve. Pursuing my Bachelor's in Computer Science and Engineering at KLS VDIT, Haliyal. As an Aspiring Software Developer I am updating my skills in Web Development.  
